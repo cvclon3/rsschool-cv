@@ -56,3 +56,4 @@ Additional information
 ----------------------
 
 + English: Pre-Intermediate.
++ I like to do something with my own hands
